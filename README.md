@@ -58,12 +58,4 @@ While in open field, you can choose to either make him
 
 a secondary commander or a primary commander.
 
-
 [^1]: That's all and Thank You! (Made by: Jecris Lorenzo L. Gangcuangco from 9 Arrowsmith B)
-
-
-
-
-
-
- 
