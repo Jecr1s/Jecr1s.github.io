@@ -24,7 +24,7 @@ skill damage. This is one of the commanders you want to max out first.
 
 # **No. 2: Minamoto no Yoshitsune - Kamakura's Warlord**
 
-![Minamoto-no-Yoshitsune](https://user-images.githubusercontent.com/102574739/162380498-fcc224f8-f72f-44d4-850d-a6e8f2a7fa78.jpg)
+![th](https://user-images.githubusercontent.com/102574739/162380498-fcc224f8-f72f-44d4-850d-a6e8f2a7fa78.jpg)
 
 Minamoto no Yoshitsune is a good Legendary Commander for peacekeeping
 
