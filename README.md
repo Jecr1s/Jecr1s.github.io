@@ -4,6 +4,6 @@
 
 
 These Commanders gives me an advantage in open field battles
- 
- # **No. 3: Sun Tzu - Tactical Genius
+
+# **No. 3: Sun Tzu - Tactical Genius**
  
